@@ -37,32 +37,61 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Spanish masquerado VVherein vnder a pleasant deuise, is discouered effectuallie, in certaine bre
+
+1. ❧ TO THE RIGHT WORSHIPFVL, M
+Hugh Ofl•y, Sheriffe of the Citie of London, Robert
+Greene wisheth ••crease of worship
+and vertue.
+〈1 page duplicate〉〈1 page duplicate〉Sonnet.Le doux Babil de ma lire d'iuoireSerra ton front d'un lau
+1. ¶To the Gentl•men Readers.
+
+1. THE SPANISH MASQVERADO
+with the MOTTOS.
+
 #####Body#####
-
-1. GLOSSA.
-
-1. GLOSSA.
-THis broode of Antechrist whome Francis Petrarch and
-Iohn Bocca•e calleth I•sipidum Sal terrae, the 
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
-1. GLOSSA.
-
+¶The Pope hauing put off his triple Crowne, and
+his Pontificalibus, sitting male-contented, sc•atch•
+    _ GLOSSA.
+¶Phillip king of Spaine, attired like an Hermite rydeth
+towardes the Church on a Mule, only attended
+    _ GLOSSA.
+¶The Cardinals of Rome, seeing that the Pope was
+male-contented, for the bad successe of the SpanishTHis broode of Antechrist whome Francis Petrarch and
+Iohn Bocca•e calleth I•sipidum Sal terrae, the The Cleargie of Spaine mounted richly on their
+lennets, 〈◊〉 vp and downe consulting, and at
+their wi
+    _ GLOSSA.
+¶The rest of the rascal Rable of the Romish church
+as Monkes, Friers, and di•ging Priestes, storming
+    _ GLOSSA.
+¶The Nobilitie of Spaine grieued at the dishonour
+of their shamefull returne, after great consultati
+    _ GLOSSA.
+¶The Duke of Medina, Captaine general of the
+Armie and Spanish forces, rydeth on a Iennet,
+with one 
+    _ GLOSSA.
+¶Don Martines de Ricaldo, chiefe Admirall of the
+Fleete, standing in the Hauen, and •eeing his
+tatte
+    _ GLOSSA.
+¶Don Pedro de Valdes, Generall of the Armie
+of Andel•si•, now Prisoner in England, greeuing
+at his f
+    _ GLOSSA.
+¶The Princes, noble men, and other men of name
+that of their free wil, offered themselues aduenturer
+    _ GLOSSA.
+11 The Vicegerentes of his Indies hauing lo•t by Sea and
+land, much of their Kinges treasure: sittin
+    _ GLOSSA.
+12 The common Souldiours, haled forward, rather by commaund
+then courage, •earing at the first to at
+    _ GLOSSA.
+THus Gentle Reader, thou hast
+seene the Spanish Masquerado,
+which I haue nowe deuised, to
+discourse 
 **Types of content**
 
   * There are 44 **verse** lines!
